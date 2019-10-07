@@ -1,1 +1,1 @@
-Máx 10 days to learn it all.
+Máx 11 days to learn it all.
