@@ -7,4 +7,4 @@ All code by henryubuntu
 
 All the code published, from the center of the Earth to the nearest Star of the Cosmos.
 
-Be the world economic Liberator.
+Be part of the world economic Liberation.
