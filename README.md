@@ -1,6 +1,5 @@
 # Data Science
 
-The course is designed to learn each subject with at least 1 or 2 days to rest each week
-and doing exercise at least 1 hour a day.
+All code organized, by henryubuntu.
 
-All code by henryubuntu.
+Do exercise 1 hour a day, eat well, sleep well, have a clean environment, rest at least 1 day weach week, etc.
