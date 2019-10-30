@@ -2,4 +2,4 @@ I added one more 0 in the name of the python files for more freedom to make more
 
 Max 55 days to learn it all.
 
-I suggest to take it in moderated speed and do excercise, worth it in the long run.
+I suggest to take it in moderated pace speed and do excercise, worth it in the long run.
