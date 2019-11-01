@@ -4,7 +4,7 @@ All code organized.
 
 This plan is organized so you can exercise 1 hour a day, eat healthy food, sleep well, use non-fluoride products, have a clean environment and rest at least 1 day each week to remember more everything.
 
-At the end of the course, you might need 2 hours to exercise a day, and sleep more, for better wellness.
+At the end of the course, you might need 2 hours to exercise a day, for better wellness.
 
 I thank the next authors who with his books is achieved this compilation:
 
