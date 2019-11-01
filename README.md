@@ -110,4 +110,87 @@ New Mexico Tech - Computer Center
 
 Fredrik Lundh
 
+Lindsay Bassett
+
+Tom	Marrs
+
+Ray Rischpater
+
+Wallace Jackson
+
+Ruben Verborgh
+
+Max De Wilde
+
+Thomas Haslwanter
+
+José Unpingco
+
+Allen B. Downey
+
+Prabhanjan Narayanachar Tattar
+
+Allen B. Downey
+
+Osvaldo Martin
+
+Cameron Davidson-Pilon
+
+Kiran R Karkera
+
+Curtis Miller
+
+Ankur Ankan
+
+Abinash Panda
+
+Harish Garg
+
+Daniel Y. Chen
+
+Wes McKinney
+
+Theodore Petrou
+
+Tomasz Drabas
+
+A.J. Henley
+
+Dave Wolf
+
+Phuong Vo.T.H
+
+Martin Czygan
+
+Robert Dempsey
+
+Magnus Vilhelm Persson
+
+Luiz Felipe Martins
+
+Femi Anthony
+
+Fabio Nelli
+
+Clinton W. Brownley
+
+Ashish Kumar
+
+Luca Massaron
+
+Alberto Boschetti
+
+Sayan Mukhopadhyay
+
+Mohiuddin Ahmed and Al-Sakib Khan Pathan
+
+Joseph Babcock
+
+THOMAS W. MILLER
+
+Alan Fontaine
+
+Alvaro	Fuentes
+
+
 
