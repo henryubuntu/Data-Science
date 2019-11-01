@@ -6,6 +6,8 @@ This plan is organized so you can exercise 1 hour a day, eat healthy food, sleep
 
 At the end of the course, you might need 2 hours to exercise a day, for better wellness.
 
+Any help to mantain and contribute to this project will be appreciated and acknowledged(if you want to). 
+
 I thank the next authors who with his books is achieved this compilation:
 
 Migrant & Seasonal Head Start
@@ -194,5 +196,12 @@ Alan Fontaine
 
 Alvaro	Fuentes
 
+Dimitrios Kouzis-Loukas
 
+Vineeth G. Nair
+
+Katharine Jarmul
+Richard Lawson
+
+Ryan Mitchell
 
