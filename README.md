@@ -1,4 +1,4 @@
-# Data Science
+# Standard Data Science course
 
 All code organized.
 
