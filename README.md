@@ -8,6 +8,8 @@ At the end of the course, you might need 2 hours to exercise a day, for better w
 
 Any help to mantain and contribute to this project will be appreciated and acknowledged(if you want to). 
 
+This compilation is made also for those special people that are in our lifes, they do not need money, they always need care, specially love.
+
 I thank the next authors who with his books is achieved this compilation:
 
 Migrant & Seasonal Head Start
