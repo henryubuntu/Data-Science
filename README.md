@@ -2,13 +2,15 @@
 
 All code organized.
 
+Si vis fidelia absolutus, learn it and be a young rich.
+
 This plan is organized so you can exercise at least 1 hour a day, eat healthy food, sleep well, use non-fluoride products, have a clean environment and rest at least 1 day each week to remember more everything.
 
 At the end of the course, you might need 2 hours to exercise a day, for better wellness.
 
 Any help to mantain and contribute to this project will be appreciated and acknowledged(if you want to). 
 
-This compilation is made also for those special people that are in our lifes, they do not really need money, they always need care, specially truthful love and protection.
+This compilation is made also for those special people that are in our lives, they do not really need money, they always need care, specially truthful love and protection.
 
 I thank the next authors who with his books is achieved this compilation:
 
