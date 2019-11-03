@@ -2,7 +2,7 @@
 
 All code organized.
 
-Si vis fidelia absolutus, learn it and be a young rich.
+Si vis fidelia absolutus, learn it and be a young rich, just remember omnia in mensura et numero et pondere disposuisti.
 
 This plan is organized so you can exercise at least 1 hour a day, eat healthy food, sleep well, use non-fluoride products, have a clean environment and rest at least 1 day each week to remember more everything.
 
