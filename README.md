@@ -4,7 +4,7 @@ All code organized.
 
 Si vis fidelia absolutus, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
 
-The understanding of the themes will be more clear as you progress into the next book which will become easier to understand than the previous one.
+The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one.
 
 This plan is organized so you can exercise at least 1 hour a day, eat healthy food, sleep well, use non-fluoride products, have a clean environment and rest at least 1 day each week to remember more everything.
 
