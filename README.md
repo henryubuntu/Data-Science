@@ -8,7 +8,7 @@ The understanding of the themes will be more clear as you progress into the next
 
 This plan is organized so you can exercise at least 1 hour a day, eat healthy food, sleep well, use non-fluoride products, have a clean environment and rest at least 1 day each week to remember more everything.
 
-At the end of the course, you might need 2 hours to exercise a day, for better wellness.
+At the last 3 topics of the course, you might need 2 hours to exercise a day, for better wellness.
 
 Any help to mantain and contribute to this project will be appreciated and acknowledged(if you want to). 
 
