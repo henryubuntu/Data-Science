@@ -14,7 +14,7 @@ Any help to mantain and contribute to this project will be appreciated and ackno
 
 This compilation is made also for those special people that are in our lives, they do not really need money, they always need care, specially truthful love and protection.
 
-I thank the next authors who with his books is achieved this compilation:
+Thanks to the next authors who with his books is achieved this compilation:
 
 Migrant & Seasonal Head Start
 Technical Assistance Center
