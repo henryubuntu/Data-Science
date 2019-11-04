@@ -12,7 +12,7 @@ At the last 3 topics of the course, you might need 2 hours to exercise a day, fo
 
 Any help to mantain and contribute to this project will be appreciated and acknowledged(if you want to). 
 
-This compilation is made also for those special people that are in our lives, they do not really need money, they always need care, specially truthful love and protection.
+This compilation is made also for those special people that are in our lives, they don't really need much money, need care, specially truthful love and protection.
 
 Thanks to the next authors who with his books is achieved this compilation:
 
