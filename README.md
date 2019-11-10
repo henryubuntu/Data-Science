@@ -200,7 +200,7 @@ THOMAS W. MILLER
 
 Alan Fontaine
 
-Alvaro	Fuentes
+Alvaro Fuentes
 
 Dimitrios Kouzis-Loukas
 
@@ -215,3 +215,68 @@ Michael Heydt
 
 Seppe vanden Broucke
 Bart Baesens
+
+Max Humber
+
+Yves Hilpisch
+
+Yuxing Yan
+
+James Ma Weiming
+
+Andreas F. Clenow
+
+DR. YVES J. HILPISCH
+
+MARCOS LÓPEZ DE PRADO
+
+Stefan Jansen
+
+Matthew Scarpino
+
+Danyel	Fisher
+
+Miriah	Meyer
+
+Nathan Yau
+
+Cole Nussbaumer Knaflic
+
+Randy Krum
+
+Richard Brath
+
+David Jonker
+
+Phil Simon
+
+Steve Wexler
+
+Jeffrey Shaffer
+
+Andy Cotgreave
+
+Rochelle King
+
+Elizabeth F Churchill
+
+Caitlin Tan
+
+Igor Milovanović
+
+Dimitry Foures
+
+Giuseppe Vettigli
+
+Kirthi Raman
+
+Kyran Dale
+
+
+
+
+
+
+
+
+
