@@ -2,6 +2,8 @@
 
 All code organized.
 
+Please, be eerily patient.
+
 Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
 
 The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
