@@ -274,11 +274,19 @@ Kirthi Raman
 
 Kyran Dale
 
+CFA Institute
 
+Wiley
 
+Kaplan Inc.
 
+Craig Prochaska
 
+Jared Heintz
 
+Kent Westlund
 
+Kurt Schuldes
 
+Bryan Knueppel
 
