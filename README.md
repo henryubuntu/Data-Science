@@ -2,7 +2,7 @@
 
 All code organized.
 
-Please, be eerily patient.
+Please, can you be eerily patient?
 
 Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
 
