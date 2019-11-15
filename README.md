@@ -1,22 +1,22 @@
 # A Data Science course
 
-All code organized.
+*All code organized.
 
-Please, can you be eerily patient?
++ Please, can you be eerily patient?
 
-Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
+- Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
 
-The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
+$ The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
 
-This plan is organized so you can exercise at least 1 hour a day, eat healthy food, sleep well, use non-fluoride products, have a clean environment, rest at least 1 day each week, days to get healthier when you get sick, etc, to remember more everything.
+& This plan is organized so you can exercise at least 1 hour a day, eat healthy food, sleep well, use non-fluoride products, have a clean environment, rest at least 1 day each week, days to get healthier when you get sick, etc, to remember more everything.
 
-At the last part of the course (not yet defined which part), you might need 2 hours to exercise a day, for better wellness.
+@ At the last part of the course (not yet defined which part), you might need 2 hours to exercise a day, for better wellness.
 
-Any help to mantain and contribute to this project will be appreciated and acknowledged(if you want to). 
+# Any help to mantain and contribute to this project will be appreciated and acknowledged(if you want to). 
 
-This compilation is made also for those special people that are in our lives, they don't really need much money, need care, specially truthful love and protection.
+% This compilation is made also for those special people that are in our lives, they don't really need much money, need care, specially truthful love and protection.
 
-Thanks to the next authors who with his books is achieved this compilation:
+❤️ Thanks to the next authors who with his books is achieved this compilation:
 
 Migrant & Seasonal Head Start
 Technical Assistance Center
