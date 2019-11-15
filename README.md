@@ -2,7 +2,7 @@
 
 *All code organized.
 
-+ Please, can you be eerily patient?
++ Please, can you be eerily patient? -> ᵦₑ ᵣᵢ𝒸ₕ
 
 - Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
 
@@ -31,8 +31,7 @@ Dick Kusleika
 
 Neil J. Salkind
 
-Stephen L. Nelson and
-Elizabeth C. Nelson
+Stephen L. Nelson and Elizabeth C. Nelson
 
 Robert A. Donnelly, Jr., Ph.D.
 
@@ -52,9 +51,9 @@ Norean R. Sharpe, Richard D. De Veaux, and Paul F. Velleman
 
 John Wiley & Sons, Inc.
 
-Evan	Berman
+Evan Berman
 
-XiaoHu	Wang
+XiaoHu Wang
 
 W. Michael Kelley
 
@@ -86,7 +85,7 @@ Ben Forta
 
 Jan Goyvaerts and Steven Levithan
 
-KEVIN HOWARD GOLDBERG
+Kevin Howard Goldberg
 
 Aaron Skonnard
 
@@ -198,7 +197,7 @@ Mohiuddin Ahmed and Al-Sakib Khan Pathan
 
 Joseph Babcock
 
-THOMAS W. MILLER
+Thomas W. Miller
 
 Alan Fontaine
 
@@ -209,6 +208,7 @@ Dimitrios Kouzis-Loukas
 Vineeth G. Nair
 
 Katharine Jarmul
+
 Richard Lawson
 
 Ryan Mitchell
@@ -216,6 +216,7 @@ Ryan Mitchell
 Michael Heydt
 
 Seppe vanden Broucke
+
 Bart Baesens
 
 Max Humber
@@ -228,17 +229,17 @@ James Ma Weiming
 
 Andreas F. Clenow
 
-DR. YVES J. HILPISCH
+DR. Yves J. Hilpisch
 
-MARCOS LÓPEZ DE PRADO
+Marcos López de Prado
 
 Stefan Jansen
 
 Matthew Scarpino
 
-Danyel	Fisher
+Danyel Fisher
 
-Miriah	Meyer
+Miriah Meyer
 
 Nathan Yau
 
@@ -260,7 +261,7 @@ Andy Cotgreave
 
 Rochelle King
 
-Elizabeth F Churchill
+Elizabeth F. Churchill
 
 Caitlin Tan
 
@@ -289,4 +290,13 @@ Kent Westlund
 Kurt Schuldes
 
 Bryan Knueppel
+
+Michael Milton
+
+http://www.itl.nist.gov
+
+Glenn J. Myatt
+
+Wayne P. Johnson
+
 
