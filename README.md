@@ -12,7 +12,7 @@ $ The understanding of the topics will be more clear as you progress into the ne
 
 @ At the last part of the course (not yet defined which part), you might need 2 hours to exercise a day, for better wellness.
 
-# Any help to mantain and contribute to this project will be appreciated and acknowledged(if you want to). 
+° Any help to mantain and contribute to this project will be appreciated and acknowledged(if you want to). 
 
 % This compilation is made also for those special people that are in our lives, they don't really need much money, need care, specially truthful love and protection.
 
