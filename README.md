@@ -4,9 +4,9 @@
 
 + Please, can you be eerily patient? -> ᵦₑ ᵣᵢ𝒸ₕ
 
-- Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
++ Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
 
-If you want all then:  https://youtu.be/pzehI8JRlwY 
++ If you want all then:  https://youtu.be/pzehI8JRlwY 
 
 $ The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
 
