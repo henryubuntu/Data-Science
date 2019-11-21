@@ -4,3 +4,5 @@ When finishing the system, remember, if you like it, it's ₒₖ to ᶜᵘᵈᵈ
 or not, forever -_- (is not a japanese face, or Brock from Pokemon, is an optical illusion).
 
 Wow! :)
+
+I know you like it "_"
