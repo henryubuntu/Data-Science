@@ -8,7 +8,7 @@
 
 + If you want all then:  https://youtu.be/pzehI8JRlwY 
 
-+ Constancy and patience for this course is rewarded.
++ Constancy and patience for this course is going to be rewarded.
 
 $ The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
 
