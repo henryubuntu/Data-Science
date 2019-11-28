@@ -145,8 +145,6 @@ Allen B. Downey
 
 Prabhanjan Narayanachar Tattar
 
-Allen B. Downey
-
 Osvaldo Martin
 
 Cameron Davidson-Pilon
@@ -304,3 +302,98 @@ Glenn J. Myatt
 Wayne P. Johnson
 
 Stoya
+
+Amit Saha
+
+Peter Farrell
+
+Gaël Varoquaux
+
+Emmanuelle Gouillart
+
+Olaf Vahtras
+
+Sergio J. Rojas G.
+
+Erik A Christensen
+
+Francisco J. Blanco-Silva
+
+Eli Bressert
+
+SciPy Cookbook team of authors
+
+Juan Nunez-Iglesias
+
+Stéfan van der Walt
+
+Harriet	Dashnow
+
+Klaus Müller
+
+Tony Vignaux
+
+Ontje Lünsdorf
+
+Stefan Scherfke
+
+Team SimPy
+
+Sandro Tosi
+
+Aldrin Yim
+
+Claire Chung
+
+Allen Yu
+
+Alexandre Devert
+
+Srinivasa Rao Poladi
+
+Duncan M. McGreggor
+
+Shai Vaingast
+
+Robert Johansson
+
+Kyle Loudon
+
+Massimo Di Pierro
+
+Javier Riverola Gurruchaga
+
+Titus Adrian Beu
+
+Jaan Kiusalaas
+
+Sandeep Nagar
+
+Peter R. Turner
+
+Thomas Arildsen
+
+Kathleen Kavanagh
+
+David J. Pine
+
+Claus Führer
+
+Jan Erik Solem
+
+Olivier Verdier
+
+Hemant Kumar Mehta
+
+Jeffrey J. Heys
+
+Mitchell L Model
+
+Tiago Antao
+
+Wayne L. Winston
+
+Hillier
+
+Lieberman
+
