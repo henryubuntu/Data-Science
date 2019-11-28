@@ -8,6 +8,8 @@ Is suggested to be a bit isolated and have a quiet place and the most minimum pe
 
 I recommend to take this serious enough, people's lifes might be in your hand one day.
 
+An idea: Communication only with the most important people in your life while learning this topic could be good; after finishing this course, restablishing normal communications, is ok.
+
 Take as long as you need making your own schedule, to learn all you need, in a good relaxing calmness.
 
 https://www.metacafe.com/watch/11995475/reconciliation-phase-01/
