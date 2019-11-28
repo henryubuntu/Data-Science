@@ -10,6 +10,7 @@ I recommend to take this serious enough, people's lifes might be in your hand on
 
 Take care of your future kids ._. , well, if you want to.
 
+Well I will delete this part, because it does not belong to Python Scientific Ecosystem, I just do not have other media to tell this online and I do not like so much currently systems of social media.
 
 My uncle told me that never give anything for free, people will not appreciate it or give back something in return, we will see that with what you do, and what happens in the future, we will see.
 
