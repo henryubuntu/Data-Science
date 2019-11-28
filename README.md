@@ -10,7 +10,7 @@
 
 + Constancy and patience for this course is going to be rewarded.
 
-+ Could be a good idea to save the money earned for future use in a unity of wealth between us.
++ Could be a good idea to save the money earned for future use in a unity of wealth between us ;) in the future.
 
 $ The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
 
