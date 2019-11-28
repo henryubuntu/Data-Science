@@ -19,3 +19,5 @@ I do want to be rich and have kids, I am not Tesla or Bobby Fischer, I do want w
 And I want peacefully U.S.A. give back all the territory their ancestors took from Mexico, and by God and by original natives and by international law should and must belong to the Mexican government, or what? "you say" in the future, we will see ._.
 
 Take as long as you need making your own schedule.
+
+https://www.metacafe.com/watch/11995475/reconciliation-phase-01/
