@@ -12,4 +12,6 @@ An idea: Communication only with the most important people in your life while le
 
 Take as long as you need making your own schedule, to learn all you need, in a good relaxing calmness.
 
+Maybe in the middle or the end of learning this you might have a panic or crisis, is ok, just let it go, these are the nerves that were excited for too much advertising that awoke for being dormant for all the childhood media marketing, just be relaxed and avoid spending too much.
+
 https://www.metacafe.com/watch/11995475/reconciliation-phase-01/
