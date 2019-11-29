@@ -10,7 +10,7 @@
 
 + Constancy and patience for this course is going to be rewarded.
 
-+ Could be a good idea to save the money earned or reinvest it with our unity for future use in our wealth ;) just in case.
++ Could be a good idea to save the money earned or reinvest it within our union for future use in our wealth ;) just in case.
 
 + Please, before get hired, get ready, many attempts will happen to hire you before your own agenda finish, are traps.
 
