@@ -1,0 +1,7 @@
+Data Science Cheatsheet
+
+data-science-cheatsheet.pdf
+
+Compiled by Maverick Lin
+
+http://mavericklin.com
