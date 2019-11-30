@@ -789,7 +789,7 @@ rstudio.com
 Christopher Bourez
 
 
-A special indirectly mention and because mental control in any way the global information of the world, thanks to the:
+A special indirectly mention and because mental control in some way the global information of the world, thanks to the:
 NSA
 
 
