@@ -1,0 +1,3 @@
+Building Machine Learning Systems with TensorFlow
+Hands-on Machine Learning with TensorFlow
+TensorFlow for Machine Learning Solutions

@@ -1,0 +1,5 @@
+Machine Learning Algorithms Cheatsheet (Python and R codes)
+
+Analytics Vidhya
+
+www.analyticsvidhya.com

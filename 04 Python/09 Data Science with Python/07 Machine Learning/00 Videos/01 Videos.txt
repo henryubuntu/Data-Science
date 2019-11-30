@@ -1,0 +1,50 @@
+A Beginner’s Guide to Machine Learning (in Python)
+Advanced Machine Learning with scikit-learn
+Advanced Statistics for Machine Learning
+Artificial Intelligence Foundations: Machine Learning
+Building Machine Learning Models in Python with scikit-learn
+Building Practical Recommendation Engines – Part 1
+Building Recommendation Systems with Python
+Building Recommender systems machine learning and AI
+Cluster Analysis and Unsupervised Machine Learning in Python
+Effective Prediction with Machine Learning – Second Edition
+Essential Machine Learning and AI with Python and Jupyter Notebook
+Extending Machine Learning Algorithms
+From 0 to 1: Machine Learning, NLP & Python-Cut to the Chase
+Fundamentals of Machine Learning with scikit-learn
+Getting Started with Machine Learning for Developers
+Getting Started with Natural Language Processing with Python
+Hands-On Machine Learning with Python and Scikit-Learn
+Identifying Behaviour Patterns using Machine Learning Techniques
+Introduction to ML Classification Models using scikit-learn
+Learn Machine Learning in 3 Hours
+Linear Regression Analysis in Python for Machine Learning
+Machine Learning & AI Foundations: Clustering and Association
+Machine Learning & AI Foundations: Linear Regression
+Machine Learning A-Z - Hands On Python and R In Data Science
+Machine Learning Essentials: Decision Trees
+Machine Learning Essential Training: Value Estimations
+Machine Learning For Absolute Beginners
+Machine Learning for Apps
+Machine Learning for Data Science
+Machine Learning for OpenCV – Supervised Learning
+Machine Learning for Time Series Data Analysis
+Machine Learning Fundamentals: Learning to Make Recommendations
+Machine Learning Primer
+Machine Learning – Python Programming: From Beginner to Intermediate
+Machine Learning with Open CV and Python
+Machine Learning with Python
+Machine Learning with Scikit-learn
+Machine Learning with scikit-learn and Tensorflow
+Math for Machine Learning
+Python Machine Learning in 7 Days
+Python Machine Learning – Part 1
+Python Machine Learning Projects
+Python Machine Learning Solutions
+Python Machine Learning Tips, Tricks, and Techniques
+scikit-learn Recipes: Build machine learning models with scikit-learn power tools
+Step-by-Step Machine Learning with Python
+Text Mining with Machine Learning and Python
+The Complete Machine Learning Course with Python
+Troubleshooting Python Machine Learning
+Understanding Machine Learning with Python

@@ -1,0 +1,3 @@
+Fundamentals of Statistical Modeling and Machine Learning Techniques
+scikit-learn –Test Predictions Using Various Models
+Training Your Systems with Python Statistical Modeling
