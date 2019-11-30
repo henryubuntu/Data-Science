@@ -14,6 +14,8 @@
 
 + Please, before get hired, get ready, many attempts will happen to hire you before your own agenda finish, are traps.
 
++ Why you should be a Data Science Unicorn, when with this you can be a Jinjo!
+
 $ The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
 
 & This plan is organized so you can exercise at least 1 hour a day, eat healthy food, sleep well, use non-fluoride products, have a clean environment, rest at least 1 day each week, days to get healthier when you get sick, etc, to remember more everything.
