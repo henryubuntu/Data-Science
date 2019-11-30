@@ -403,3 +403,392 @@ Hillier
 
 Lieberman
 
+Springboard
+
+@semanti_ca
+
+Jerry Overton
+
+Kirill Eremenko
+
+https://towardsdatascience.com
+
+Cloudfactory
+
+Making Devs
+
+www.analyticsvidhya.com
+
+365 Data Science
+
+
+proschool
+
+metis
+
+DJ Patil
+
+Doug Rose
+
+http://mavericklin.com
+
+Mike Loukides
+
+Vincent Granville, Ph.D.
+
+Lillian Pierson
+
+Laura Igual
+
+Santi Seguí
+
+Tim Menzies
+
+Laurie Williams
+
+Thomas Zimmermann
+
+Brian Godsey
+
+Roger D. Peng and Elizabeth Matsui
+
+Field Cady
+
+Massimiliano Bonamente
+
+Steven S. Skiena
+
+Rajendra Akerkar 
+
+Priti Srinivas Sajja
+
+Guido Caldarelli
+
+Alessandro Chessa
+
+Damodar Reddy Edla
+
+Pawan Lingras
+
+Venkatanareshbabu K.
+
+Maria Brigida Ferraro
+
+Paolo Giordani
+
+Barbara Vantaggi
+
+Marek Gagolewski
+
+María Ángeles Gil
+
+Przemysław Grzegorzewski
+
+Olgierd Hryniewicz
+
+John Lawson
+
+John Erjavec
+
+SAS
+
+PWC
+
+vinodsblog.com
+
+Sebastian Raschka
+
+Vahid Mirjalili
+
+David Julian
+
+John Hearty
+
+Raúl Garreta
+
+Guillermo Moncecchi
+
+Julian Avila
+
+Trent Hauck
+
+Gavin Hackeling
+
+Prateek Joshi
+
+Bastiaan Sjardin
+
+Alberto Boschetti
+
+Rudolph	Russell
+
+Peter Harrington
+
+Helen Edwards
+
+Gabriel Cánepa
+
+Andreas C. Müller 
+
+Sarah Guido
+
+John Paul Mueller
+
+Luca Massaron
+
+Abhishek Vijayvargia
+
+Patanjali Kashyap
+
+Daniel Nedal
+
+Peters Morgan
+
+Sinan Ozdemir
+
+Divya Susarla
+
+Alice Zheng
+
+Amanda Casari
+
+Prateek Joshi
+
+Giuseppe Bonaccorso
+
+Danish Haroon
+
+Chris Albon
+
+Henrik Brink
+
+Joseph W. Richards
+
+Mark Fetherolf
+
+Manohar Swamynathan
+
+Jason Brownlee
+
+Darren Cook
+
+Michael Bowles
+
+Rodolfo Bonnin
+
+Vahid Mirjalili
+
+Bastiaan Sjardin
+
+Luca Massaron
+
+Alberto Boschetti
+
+Aurélien Géron
+
+Raúl Garreta
+
+Guillermo Moncecchi
+
+Julian Avila
+
+Trent Hauck
+
+Gavin Hackeling
+
+Sunila Gollapudi
+
+Dipanjan Sarkar
+
+Raghav Bali
+
+Tushar Sharma
+
+Yuxi (Hayden) Liu
+
+Rounak Banik
+
+Sibanjan Das
+
+Umit Mert Cakmak
+
+Jalaj Thanaki
+
+Andriy Burkov
+
+Matthew Kirk
+
+Justin Bozonier
+
+Michael Bowles
+
+Pratap Dangeti
+
+Alexander T. Combs
+
+David Julian
+
+John Hearty
+
+Luis Pedro Coelho
+
+Willi Richert
+
+Ankur	A. Patel
+
+Dr.	Engr.	S.M.	Farrukh	Akhtar
+
+Sudharsan	Ravichandiran
+
+Abhishek Nandy
+
+Manisha Biswas
+
+Andrea Lonza
+
+Michael Beyeler
+
+Clarence Chio 
+
+David Freeman
+
+Ekbal Rashid
+
+Stanford University
+
+Microsoft
+
+Business Science University
+
+Thomas Laville
+
+Nikhil Ketkar
+
+Ivan Vasilev
+
+Daniel Slater
+
+Gianmario Spacagna
+
+Peter Roelants
+
+Valentino Zocca
+
+Armando Vieira
+
+Bernardete Ribeiro
+
+François Chollet
+
+Nikhil Buduma
+
+Nicholas Locascio
+
+Andrew W. Trask
+
+Andrew Glassner
+
+Douwe Osinga
+
+Navin Kumar Manaswi
+
+Indra	den	Bakker
+
+Josh Patterson
+
+Adam Gibson
+
+Maxim Lapan
+
+Max Pumperla 
+
+Kevin Ferguson
+
+Bharath Ramsundar
+
+Peter Eastman
+
+Patrick Walters
+
+Vijay Pande
+
+Alex Galea
+
+Luis Capelo
+
+Giancarlo Zaccone
+
+Md. Rezaul Karim
+
+Ahmed Menshawy
+
+Sam	Abrahams
+
+Danijar	Hafner
+
+Erik Erwitt
+
+Ariel	Scarpinelli
+
+Matthew Scarpino
+
+Tom Hope
+
+Yehezkel S. Resheff
+
+Itay Lieder
+
+Bharath	Ramsundar
+
+Reza Bosagh Zadeh
+
+Sayon Dutta
+
+Nick McClure
+
+Antonio	Gulli
+
+Amita	Kapoor
+
+Josh Kalin
+
+David Foster
+
+Quan Hua
+
+Shams Ul Azeem
+
+Saif Ahmed
+
+Nishant Shukla
+
+Dan	Van	Boxel
+
+Rodolfo Bonnin
+
+Alexey Grigorev
+
+Abhishek Thakur
+
+Rajalingappaa Shanmugamani
+
+Ankit Jain
+
+Amita Kapoor
+
+Vishnu Subramanian
+
+Antonio Gulli
+
+Sujit Pal
+
+Jojo Moolayil
+
+rstudio.com
+
+Christopher Bourez
+
+
+
+
+
