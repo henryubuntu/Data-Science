@@ -790,7 +790,7 @@ Christopher Bourez
 
 
 A special indirectly mention and because mental control in some way the global information of the world, thanks to the:
-NSA
+NSA of the U.S.A.
 
 
 
