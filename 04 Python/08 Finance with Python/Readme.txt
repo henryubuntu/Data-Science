@@ -4,4 +4,4 @@ Shall you follow the oath?
 https://youtu.be/xp0EjDuwB2Q 
 
 Maximus 51 days to learn all, 
-except 03 Chartered Financial Analyst, this takes max 104 days to learn it all.
+except 03 Chartered Financial Analyst, this takes maximum 104 days to learn it all.
