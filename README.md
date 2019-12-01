@@ -81,7 +81,7 @@ Tye Rattenbury
 
 Joe Hellerstein
 
-Jeff rey Heer
+Jeffrey Heer
 
 Sean Kandel
 
@@ -812,6 +812,137 @@ Jojo Moolayil
 rstudio.com
 
 Christopher Bourez
+
+Yannis Haralambous
+
+Victor Stinner
+
+Steven Moran
+
+Michael Cysouw
+
+Richard Gillam
+
+Jukka	K.	Korpela
+
+Nitin Hardeniya
+
+Jacob Perkins
+
+Deepti Chopra
+
+Nisheeth Joshi
+
+Iti Mathur
+
+Steven Bird
+
+Ewan Klein
+
+Edward Loper
+
+Krishna Bhavsar
+
+Naresh Kumar
+
+Pratap Dangeti
+
+James Pustejovsky 
+
+Amber Stubbs
+
+Dipanjan Sarkar
+
+Benjamin Bengfort
+
+Rebecca Bilbro
+
+Tony Ojeda
+
+Jalaj Thanaki
+
+Hobson Lane
+
+Cole Howard
+
+Hannes Max Hapke
+
+Yoav Goldberg
+
+Sumit Raj
+
+Navin Kumar Manaswi
+
+Palash Goyal
+
+Sumit Pandey
+
+Karan Jain
+
+Thushan Ganegedara
+
+Akshay Kulkarni
+
+Adarsha Shivananda
+
+Taweh Beysolow II
+
+Karthiek Reddy Bokka
+
+Shubhangi	Hora
+
+Tanuj	Jain
+
+Monicah	Wambugu
+
+Rajesh Arumugam
+
+Rajalingappaa	Shanmugamani
+
+Delip Rao 
+
+Brian McMahan
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 A special indirectly mention and because mental control in some way the global information of the world, thanks to the:
