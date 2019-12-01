@@ -41,7 +41,9 @@ Dick Kusleika
 
 Neil J. Salkind
 
-Stephen L. Nelson and Elizabeth C. Nelson
+Stephen L. Nelson 
+
+Elizabeth C. Nelson
 
 Robert A. Donnelly, Jr., Ph.D.
 
@@ -57,7 +59,11 @@ S. Christian Albright
 
 Wayne L. Winston
 
-Norean R. Sharpe, Richard D. De Veaux, and Paul F. Velleman
+Norean R. Sharpe
+
+Richard D. De Veaux
+
+Paul F. Velleman
 
 John Wiley & Sons, Inc.
 
@@ -71,7 +77,15 @@ Duane C. Hinders
 
 Martin Sternstein, Ph.D.
 
-Tye Rattenbury, Joe Hellerstein, Jeff rey Heer, Sean Kandel & Connor Carreras
+Tye Rattenbury
+
+Joe Hellerstein
+
+Jeff rey Heer
+
+Sean Kandel
+
+Connor Carreras
 
 Q. Ethan McCallum
 
@@ -79,11 +93,15 @@ Megan Squire
 
 Allan Visochek
 
-Jacqueline Kazil and Katharine Jarmul
+Jacqueline Kazil 
+
+Katharine Jarmul
 
 Chris Albon
 
-Peter Morville and Jeffery Callender
+Peter Morville 
+
+Jeffery Callender
 
 Michael Fitzgerald
 
@@ -93,7 +111,9 @@ Víctor Romero
 
 Ben Forta
 
-Jan Goyvaerts and Steven Levithan
+Jan Goyvaerts 
+
+Steven Levithan
 
 Kevin Howard Goldberg
 
@@ -107,7 +127,9 @@ Shamkant B. Navathe
 
 Andrew H. Watt
 
-Robert Eckstein with Michel Casabianca
+Robert Eckstein
+
+Michel Casabianca
 
 Google
 
@@ -201,7 +223,9 @@ Alberto Boschetti
 
 Sayan Mukhopadhyay
 
-Mohiuddin Ahmed and Al-Sakib Khan Pathan
+Mohiuddin Ahmed 
+
+Al-Sakib Khan Pathan
 
 Joseph Babcock
 
@@ -421,7 +445,6 @@ www.analyticsvidhya.com
 
 365 Data Science
 
-
 proschool
 
 metis
@@ -450,7 +473,9 @@ Thomas Zimmermann
 
 Brian Godsey
 
-Roger D. Peng and Elizabeth Matsui
+Roger D. Peng 
+
+Elizabeth Matsui
 
 Field Cady
 
@@ -636,7 +661,7 @@ Willi Richert
 
 Ankur	A. Patel
 
-Dr.	Engr.	S.M.	Farrukh	Akhtar
+Dr.	Engr.	S.M. Farrukh	Akhtar
 
 Sudharsan	Ravichandiran
 
