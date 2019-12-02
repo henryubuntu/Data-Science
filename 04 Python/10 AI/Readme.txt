@@ -5,4 +5,4 @@ or not, forever -_- (is not a japanese face, or Brock from Pokemon, is an optica
 
 Wow! :)
 
-I know you like it "_"
+I know you like it ^_^
