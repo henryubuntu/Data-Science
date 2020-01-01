@@ -917,16 +917,45 @@ Ankit Dixit
 
 Armando	Fandango
 
+Tony Fischetti
 
+Eric Mayor
 
+Rui Miguel Forte
 
+Raghav Bali
 
+Dipanjan Sarkar
 
+Richard Cotton
 
+Garrett Grolemund
 
+Eric Goh Ming Hui
 
+Dr. Joshua F. Wiley
 
+Larry A. Pace
 
+Andrie de Vries 
+
+Joris Meys
+
+Dan Zhang
+
+Joseph Adler
+
+Jared P. Lander
+
+Andy Nicholls
+
+Richard Pugh
+
+Aimee Gott
+
+Tilman M. Davies
+
+John Jay Hilfiger
 
 
 
