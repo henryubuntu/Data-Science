@@ -1,2 +1,2 @@
 
-Max 16 to learn it all.
+Max 16 to learn all.
