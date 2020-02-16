@@ -18,11 +18,11 @@
 
 + I suggest to avoid all sugar products with refined sugar(industrialized) [if that is the only available to eat, is good] {natural sweeteners are good}, to learn better and have a good body.
 
-* And then, and then, and then, and then, and then, and then, and then, and then, and then, etc. relax, all will be fine.
-
 + And also the suggestion is that if you are older than 18 years and finish this course, destroy or throw to garbage your Kinder, Primary School, Secondary School, High School Certificate and University degree and also the identification record to get a job, like in México is named "Cédula Profesional", they are useless; companies prefer knowledge not papers (if we are ever stopped by any executive or company people or government law that says that we are unable to have administrative or CEO positions for lack of papers in any country of the world, let's all together stop working at the same time in all the companies, we will see if a paper or cerficate save their systems, for and/or in the case that any country politics or laws stablish that managers must a have degree to get that position or related position, whereas be in the government or not [remember that those laws are old and not updated for todays' age])
 
 + Also if any company or government or any entity stablish that you, must use, to program or work in their office a standard of cloth like pants, shoes, tie or coat or jacket or a hair style, and you do not like it, also tell to all the rest of the programmers, and if they are loyal to us, let's all together stop working, we will see if a tie, coat, jacket, hair style, pants or a specific cloth save the companies or governments for the economic meltdown.
+
+* And then, and then, and then, and then, and then, and then, and then, and then, and then, etc. relax, all will be fine.
 
 $ The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
 
