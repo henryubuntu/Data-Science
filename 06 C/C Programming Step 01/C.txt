@@ -1,1 +1,2 @@
-s
+00 The C Programming Language - Brian Kernighan, Dennis Ritchie
+01 Cómo programar en lenguaje C. - Prensa Técnica. Más PC Biblioteca
