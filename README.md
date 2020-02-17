@@ -1,6 +1,6 @@
 # A Data Science course
 
-∀ All code organized.
+∀ All code organized (of the topics I liked the most, jajaja ;)
 
 + Please, can you be eerily patient? -> ᵦₑ ᵣᵢ𝒸ₕ
 
