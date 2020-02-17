@@ -2,7 +2,7 @@
 
 ∀ All code organized (of the topics I liked the most, ja ja ja ;) )
 
-+ Please, can you be eerily patient? -> ᵦₑ ᵣᵢ𝒸ₕ
++ Please, can you be eerily patient to learn all of this fast? -> ᵦₑ ᵣᵢ𝒸ₕ
 
 + Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
 
