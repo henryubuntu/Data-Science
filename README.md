@@ -965,8 +965,15 @@ Tilman M. Davies
 
 John Jay Hilfiger
 
+Brian Kernighan
 
+✞ Dennis Ritchie
 
+Tony Gaddis
+
+Judy Walters
+
+Godfrey Muganda
 
 
 
