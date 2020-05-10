@@ -2,6 +2,8 @@
 
 ∀ All code organized (of the topics I liked the most, ja ja ja ;) )
 
++ You can contact me for any job proposals at: enriquerios at mail.ru or enriquerios2@mail.ru
+
 + Please, can you be eerily patient to learn all of this fast? -> ᵦₑ ᵣᵢ𝒸ₕ
 
 + Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
