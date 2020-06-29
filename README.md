@@ -12,19 +12,11 @@
 
 + Constancy and patience for this course is going to be rewarded.
 
-+ Could be a good idea to save the money earned or reinvest it within our union for future use in our wealth ;) just in case.
-
-+ Please, before get hired, get ready, many attempts will happen to hire you before your own agenda finish, are traps.
-
 + Who wants to be a Data Science Unicorn? when with this you can be a Data Science Jinjo! 𝓌ₑₑₑ!
-
-+ I suggest to avoid all sugar products with refined sugar(industrialized) [if that is the only available to eat, is good] {natural sweeteners are good}, to learn better and have a good body.
-
-* And then, and then, and then, and then, and then, and then, and then, and then, and then, etc. relax, all will be fine.
 
 $ The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
 
-• This plan is organized so you can exercise at least 1 hour a day, eat healthy food, sleep well, use non-fluoride products, have a clean environment, rest at least 1 day each week, days to get healthier when you get sick, etc, to remember more everything.
+• This plan is organized so you can exercise at least 1 hour a day, eat healthy food, sleep well, have a clean environment, rest at least 1 day each week, days to get healthier when you get sick, etc, to remember more everything.
 
 · At the last part of the course (not yet defined which part), you might need 2 hours to exercise a day, for better wellness.
 
