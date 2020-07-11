@@ -14,6 +14,8 @@
 
 + Who wants to be a Data Science Unicorn? when with this you can be a Data Science Jinjo! 𝓌ₑₑₑ!
 
++ Is important that if whenever you are learning you are having a bad day, getting angry or some bad feeling stop programming for that day, relax and let it pass all the bad issues of the day and the next day continue, that way your emotion of anger will be smaller during your life and you will be able to control it whenever a situation of anger happens; because if you continue with the anger or the pain and start wanting to fixing things, many things will go wrong, is better all become nice and cool in life.
+
 $ The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
 
 • This plan is organized so you can exercise at least 1 hour a day, eat healthy food, sleep well, have a clean environment, rest at least 1 day each week, days to get healthier when you get sick, etc, to remember more everything.
