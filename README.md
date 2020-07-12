@@ -4,6 +4,8 @@
 
 + You can contact me at: enriquerios at mail.ru
 
++ You should take 30 minuts to 1 hour to relax a day watching tv, reading a book, playing videogames, or else to relax the mind of all the data science you will learn and be more relax your entire life.
+
 + Please, can you be eerily patient to learn all of this fast? -> ᵦₑ ᵣᵢ𝒸ₕ
 
 + Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
