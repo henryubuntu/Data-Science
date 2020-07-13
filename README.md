@@ -10,6 +10,8 @@
 
 + Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
 
++ This is something funny, maybe you will be a long time without interacting with other people, and for that I suggest a form of representation of a human and specially that be an old male, and practice some kind of social interaction with nice forms of talking with them, so for that I suggest watching old tv shows like the brady bunch or a like where you learn how they think and their cultural mind, in order to avoid some mistake and say something ironic, sarcastic, taunt, or that seem rude or hurt feelings of any kind, and therefore be nicer with them and have better communication.
+
 + If you want all then:  https://youtu.be/pzehI8JRlwY 
 
 + Constancy and patience for this course is going to be rewarded.
