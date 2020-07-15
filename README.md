@@ -10,6 +10,8 @@
 
 + Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
 
++ Study (learn) and live your life on your own pace of time not of what is given by a company or institution or government, is suggested to solve your live and health problems first and then continue learning this course.
+
 + Sometimes there is a lot afraid to come back and remake the entire enterprise software or module or package or discard months of programming, but is better to do it that get not good software, and you just need to gasp away that effort and continue.
 
 + If you have a problem, wait 3 days to make as many solutions as you can get and get the tools, in the 4th day try them by the most simple to the most complex.
