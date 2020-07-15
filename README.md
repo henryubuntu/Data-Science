@@ -10,6 +10,8 @@
 
 + Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
 
++ Sometimes there is a lot afraid to come back and remake the entire enterprise software or module or package or discard months of programming, but is better to do it that get not good software.
+
 + If you have a problem, wait 3 days to make as many solutions as you can get and get the tools, in the 4th day try them by the most simple to the most complex.
 
 + This is something funny, maybe you will be a long time without interacting with other people, and for that I suggest a form of representation of a human and specially that be an old male, and practice some kind of social interaction with nice forms of talking with them, so for that I suggest watching old tv shows like the brady bunch or a like where you learn how they think and their cultural mind, in order to avoid some mistake and say something ironic, sarcastic, taunt, or that seem rude or hurt feelings of any kind, and therefore be nicer with them and have better communication.
