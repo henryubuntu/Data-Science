@@ -28,14 +28,13 @@
 
 + Is important that if whenever you are learning you are having a bad day, getting angry or some bad feeling stop programming for that day, relax and let it pass all the bad issues of the day and the next day continue, that way your emotion of anger will be smaller during your life and you will be able to control it whenever a situation of anger happens; because if you continue with the anger or the pain and start wanting to fixing things, many things will go wrong, is better all become nice and cool in life.
 
-
 + Always fresh water in your face and/or a shower will help you remember things more easily and find solutions
 
 + A trick to resolve your problems is write all your issues (or collect all the things that make you remember bad things), all you what makes you feel angry, all your problems of the past or your family in blank sheets of paper or a notebook with blank sheets of paper when you are ready remove your anger rip the sheets and put them in a bucket of water and is optional to emotional relieve start destroying by hand all the paper sheets in the water and let all those problems of the past let them go and create a new emotion for thos events of your life, then filter the water and put the wet paper in trash bags and let go all the evil and welcome a new beginining of new emotions you will create of your future.
 
 $ The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
 
-• This plan is organized so you can exercise at least 1 hour a day, eat healthy food, sleep well, have a clean environment, rest at least 1 day each week, days to get healthier when you get sick, etc, to remember more everything.
+• This plan is organized so you can exercise at least 1 hour a day, eat healthy food, avoid fluoride products to learn better, sleep well, have a clean environment, rest at least 1 day each week, days to get healthier when you get sick, etc, to remember more everything.
 
 · At the last part of the course (not yet defined which part), you might need 2 hours to exercise a day, for better wellness.
 
