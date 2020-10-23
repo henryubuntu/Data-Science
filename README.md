@@ -347,8 +347,6 @@ Glenn J. Myatt
 
 Wayne P. Johnson
 
-Stoya
-
 Amit Saha
 
 Peter Farrell
