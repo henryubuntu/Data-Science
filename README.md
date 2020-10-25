@@ -1,4 +1,4 @@
-# A Data Science course
+# Data Science course
 
 ∀ All code organized (of the topics I liked the most, ja ja ja ;) )
 
