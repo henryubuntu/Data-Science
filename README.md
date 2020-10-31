@@ -12,12 +12,6 @@
 
 + Study (learn) and live your life on your own pace of time not of what is given by a company or institution or government, is suggested to solve your live and health problems first and then continue learning this course.
 
-+ Sometimes there is a lot afraid to come back and remake the entire enterprise software or module or package or discard months of programming, but is better to do it that get not good software, and you just need to gasp away that effort and continue.
-
-+ If you have a problem, wait 3 days to make as many solutions as you can get and get the tools, in the 4th day try them by the most simple to the most complex.
-
-+ This is something funny, maybe you will be a long time without interacting with other people, and for that I suggest a form of representation of a human and specially that be an old male, and practice some kind of social interaction with nice forms of talking with them, so for that I suggest watching old tv shows like the brady bunch or a like where you learn how they think and their cultural mind, in order to avoid some mistake and say something ironic, sarcastic, taunt, or that seem rude or hurt feelings of any kind, and therefore be nicer with them and have better communication.
-
 + If you want all then:  https://youtu.be/pzehI8JRlwY 
 
 + Constancy and patience for this course is going to be rewarded.
@@ -29,8 +23,6 @@
 + Is important that if whenever you are learning you are having a bad day, getting angry or some bad feeling stop programming for that day, relax and let it pass all the bad issues of the day and the next day continue, that way your emotion of anger will be smaller during your life and you will be able to control it whenever a situation of anger happens; because if you continue with the anger or the pain and start wanting to fixing things, many things will go wrong, is better all become nice and cool in life.
 
 + Always fresh water in your face and/or a shower will help you remember things more easily and find solutions
-
-+ A trick to resolve your problems is write all your issues (or collect all the things that make you remember bad things), all you what makes you feel angry, all your problems of the past or your family in blank sheets of paper or a notebook with blank sheets of paper when you are ready remove your anger rip the sheets and put them in a bucket of water and is optional to emotional relieve start destroying by hand all the paper sheets in the water and let all those problems of the past let them go and create a new emotion for thos events of your life, then filter the water and put the wet paper in trash bags and let go all the evil and welcome a new beginining of new emotions you will create of your future.
 
 $ The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
 
