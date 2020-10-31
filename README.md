@@ -980,33 +980,3 @@ Tony Gaddis
 Judy Walters
 
 Godfrey Muganda
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-A special indirectly mention and because mental control in some way the global information of the world, thanks to the:
-NSA of the U.S.A.
-
-
-
