@@ -24,6 +24,8 @@
 
 + Always fresh water in your face and/or a shower will help you remember things more easily and find solutions
 
++ When you mix playing fast pace videogames non-played before or decades without playing it, learning a programming language from the basics to advance, eating well, having regular exercise and seeing fast pace animated movies or series non seen before or seen a lot of years ago in another language or in your own and that are really interested to the mind or very catchy, with a clear sound and graphics, and good health without a pain in any part of the body or comes and goes sickness, and avoid any psychological pressure from somebody to learn faster or someone who interrupts or bother or noisy talk, a peaceful environment without hearing any other sounds than what you make, with a clean and organized room and painted rooms with colors that enhance concentration, calm and fast calculated response and a bit more things. You learn fast to program, remember and whenever there is a mistake or error or system panic, you remain calm and remember your training and solve things faster.
+
 $ The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
 
 • This plan is organized so you can exercise at least 1 hour a day, eat healthy food, avoid fluoride products to learn better, sleep well, have a clean environment, rest at least 1 day each week, days to get healthier when you get sick, etc, to remember more everything.
