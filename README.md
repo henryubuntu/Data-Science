@@ -6,15 +6,11 @@
 
 + You should take 30 minuts to 1 hour to relax a day watching tv, reading a book, playing videogames, or else to relax the mind of all the data science you will learn and be more relax your entire life, and remember, I told you.
 
-+ Please, can you be eerily patient to learn all of this fast? -> ᵦₑ ᵣᵢ𝒸ₕ
-
 + Study (learn) and live your life on your own pace of time not of what is given by a company or institution or government, is suggested to solve your live and health problems first and then continue learning this course.
 
 + If you want all then:  https://youtu.be/pzehI8JRlwY 
 
 + Constancy and patience for this course is going to be rewarded.
-
-+ Who wants to be a Data Science Unicorn? when with this you can be a Data Science Jinjo! 𝓌ₑₑₑ!
 
 + Is important that if whenever you are learning you are having a bad day, getting angry or some bad feeling stop programming for that day, relax and let it pass all the bad issues of the day and the next day continue, that way your emotion of anger will be smaller during your life and you will be able to control it whenever a situation of anger happens; because if you continue with the anger or the pain and start wanting to fixing things, many things will go wrong, is better all become nice and cool in life.
 
