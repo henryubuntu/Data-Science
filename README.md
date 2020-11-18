@@ -2,7 +2,7 @@
 
 ∀ All code organized (of the topics I liked the most, ja ja ja ;) )
 
-+ You can contact me at: enriquerios at mail.ru
++ This a infallible course, so if you do not like some book to learn from or some code of a book is outdated you can use the others available.
 
 + You should take 30 minuts to 1 hour to relax a day watching tv, reading a book, playing videogames, or else to relax the mind of all the data science you will learn and be more relax your entire life, and remember, I told you.
 
