@@ -8,8 +8,6 @@
 
 + Please, can you be eerily patient to learn all of this fast? -> ᵦₑ ᵣᵢ𝒸ₕ
 
-+ Si vis fidelia, learn it, est is divitiae maxima, just remember and do, omnia in mensura et numero et pondere disposuisti.
-
 + Study (learn) and live your life on your own pace of time not of what is given by a company or institution or government, is suggested to solve your live and health problems first and then continue learning this course.
 
 + If you want all then:  https://youtu.be/pzehI8JRlwY 
