@@ -4,6 +4,8 @@
 
 + This a infallible course, so if you do not like some book to learn from or some code of a book is outdated you can use the others available.
 
++ You will use the computer mouse a lot so, to get more comfortable, buy a big HUGE computer mouse to give your hand a rest.
+
 + You should take 30 minuts to 1 hour to relax a day watching tv, reading a book, playing videogames, or else to relax the mind of all the data science you will learn and be more relax your entire life, and remember, I told you.
 
 + Study (learn) and live your life on your own pace of time not of what is given by a company or institution or government, is suggested to solve your live and health problems first and then continue learning this course.
