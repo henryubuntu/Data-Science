@@ -22,8 +22,6 @@
 
 $ The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
 
-• This plan is organized so you can exercise at least 1 hour a day, eat healthy food, avoid fluoride products to learn better, sleep well, have a clean environment, rest at least 1 day each week, days to get healthier when you get sick, etc, to remember more everything.
-
 · At the last part of the course (not yet defined which part), you might need 2 hours to exercise a day, for better wellness.
 
 ° Any help to mantain and contribute to this project will be appreciated and acknowledged(if you want to). 
