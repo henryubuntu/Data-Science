@@ -28,6 +28,8 @@ $ The understanding of the topics will be more clear as you progress to the next
 
 % This compilation is made also for those special people that are in our lives, they don't really need much money, need care, special truthful love, calm (you know in the world were wars, natural disasters, etc, so remain calm and focus to resolve all better and faster) and protection.
 
++ I suggest also read some books of psicology or double meaning objects or optical tricks, etc, this will improve greatly your mind to resolve problems and look for other perspectives to find a solution. I suggest 1 month to learn, and no more time, to finish reading all you can or while you are learning the data science path. Trust me, you will find a greater advantage to have that knowledge against the other data scientists, and remember, I told you,  :)   =)  :]  ^-^   ^_^. 
+
 ❤️ Thanks to the next authors who with his books is achieved this compilation:
 
 Migrant & Seasonal Head Start
@@ -959,10 +961,14 @@ John Jay Hilfiger
 
 Brian Kernighan
 
-✞ Dennis Ritchie
+⛼ Dennis Ritchie
 
 Tony Gaddis
 
 Judy Walters
 
 Godfrey Muganda
+
+
+☮ ⚐
+
