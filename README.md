@@ -8,25 +8,25 @@
 
 + You should take 30 minuts to 1 hour to relax a day watching tv, reading a book, playing videogames, or else to relax the mind of all the data science you will learn and be more relax your entire life, and remember, I told you.
 
-+ Study (learn) and live your life on your own pace of time not of what is given by a company or institution or government, is suggested to solve your live and health problems first and then continue learning this course.
++ Study (learn) and live your life on your own pace of time not of what is given by a company or institution or government, is suggested to solve your life and health problems first and then continue learning this course.
 
 + If you want all then:  https://youtu.be/pzehI8JRlwY 
 
 + Constancy and patience for this course is going to be rewarded.
 
-+ Is important that if whenever you are learning you are having a bad day, getting angry or some bad feeling stop programming for that day, relax and let it pass all the bad issues of the day and the next day continue, that way your emotion of anger will be smaller during your life and you will be able to control it whenever a situation of anger happens; because if you continue with the anger or the pain and start wanting to fixing things, many things will go wrong, is better all become nice and cool in life.
++ Is important that if whenever you are learning you are having a bad day, getting angry or some bad feeling stop programming for that day, relax and let it pass all the bad issues of the day and the next day continue, that way your emotion of anger will be smaller during your life and you will be able to control it whenever a situation of anger happens; because if you continue with the anger or the pain and start wanting to fix things, many things will go wrong, is better to do all nice, smooth and have a cool life.
 
-+ Always fresh water in your face and/or a shower will help you remember things more easily and find solutions
++ Always fresh water in your face and/or a shower will help you remember things more easily and find solutions.
 
-+ When you mix playing fast pace videogames non-played before or decades without playing it, learning a programming language from the basics to advance, eating well, having regular exercise and seeing fast pace animated movies or series non seen before or seen a lot of years ago in another language or in your own and that are really interested to the mind or very catchy, with a clear sound and graphics, and good health without a pain in any part of the body or any coming and going sickness, and avoid any psychological pressure from somebody to learn faster or someone who interrupts or bother or noisy talk, a peaceful environment without hearing any other sounds than what you make, with a clean and organized room and painted rooms with colors that enhance concentration, calm and fast calculated response and a bit more things. You learn fast to program, remember and whenever there is a mistake or error or system panic, you remain calm and remember your training and solve things faster. Magical things will happen to your brain if you do this for a year and continue doing it as a rutine.
++ When you mix playing fast pace videogames non-played before or decades without playing it, learning a programming language from the basics to advance, eating well, having regular exercise and seeing fast pace animated movies or series non seen before or seen a lot of years ago in another language or in your own and that are really interesting to the mind or very catchy, with a clear sound and graphics, and good health without a pain in any part of the body or any coming and going sickness, and avoid any psychological pressure from somebody to learn faster or someone who interrupts or bother or noisy talk, a peaceful environment without hearing any other sounds than your own, with a clean and organized room and painted rooms with colors that enhance concentration, calm and fast calculated response and a bit more things. You learn fast to program, remember and whenever there is a mistake or error or system panic, you remain calm and remember your training and solve things faster. Magical things will happen to your brain if you do this for a year, and then for all your life.
 
-$ The understanding of the topics will be more clear as you progress into the next book which will become easier to understand than the previous one, ergo no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
+$ The understanding of the topics will be more clear as you progress to the next book which will become easier to understand than the previous one, so, no need to put a lot of effort to understand perfectly one book, because the next clarifies the ideas.
 
-· At the last part of the course (not yet defined which part), you might need 2 hours to exercise a day, for better wellness.
+· At the last part of the course (not yet defined which part), maybe after 3/4 or 3/5 of all the course, you might need 2 hours to exercise a day, for better wellness.
 
 ° Any help to mantain and contribute to this project will be appreciated and acknowledged(if you want to). 
 
-% This compilation is made also for those special people that are in our lives, they don't really need much money, need care, specially truthful love and protection.
+% This compilation is made also for those special people that are in our lives, they don't really need much money, need care, special truthful love, calm (you know in the world were wars, natural disasters, etc, so remain calm and focus to resolve all better and faster) and protection.
 
 ❤️ Thanks to the next authors who with his books is achieved this compilation:
 
