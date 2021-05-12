@@ -2,7 +2,11 @@
 
 ∀ All code organized (of the topics I liked the most, ja ja ja ;) )
 
-+ To experience the high or the rush of cocaine with just a simulation, I invite you to get rich in a simulated environment, and feel the high and the fall of your stock exchange empire magnet:?xt=urn:btih:abe8f486f47e8f3f16ac60f79b9e1828e32bbeda&dn=Wall%2BStreet%2BTrader%2B2001&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2F47.ip-51-68-199.eu%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2920%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.cyberia.is%3A6969%2Fannounce
++ To experience the high or the rush of cocaine with just a simulation (without taking cocaine or similar, just by playing and imagine is real money you are betting, I invite you to get rich in a simulated environment, and feel the high and the fall of your stock exchange empire 
+
+Wall Street Trader 2001
+
+magnet:?xt=urn:btih:abe8f486f47e8f3f16ac60f79b9e1828e32bbeda&dn=Wall%2BStreet%2BTrader%2B2001&tr=udp%3A%2F%2Ftracker.coppersurfer.tk%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.openbittorrent.com%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337&tr=udp%3A%2F%2Ftracker.leechers-paradise.org%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.dler.org%3A6969%2Fannounce&tr=udp%3A%2F%2Fopentracker.i2p.rocks%3A6969%2Fannounce&tr=udp%3A%2F%2F47.ip-51-68-199.eu%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.internetwarriors.net%3A1337%2Fannounce&tr=udp%3A%2F%2F9.rarbg.to%3A2920%2Fannounce&tr=udp%3A%2F%2Ftracker.pirateparty.gr%3A6969%2Fannounce&tr=udp%3A%2F%2Ftracker.cyberia.is%3A6969%2Fannounce
 
 Wall Street Trader 2001
 
