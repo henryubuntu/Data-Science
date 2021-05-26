@@ -2,7 +2,9 @@
 
 ∀ All code organized (of the topics I liked the most, ja ja ja ;) )
 
-+ To experience the high or the rush of cocaine with just a simulation (without taking cocaine or similar, just by playing and imagine is real money you are betting, I invite you to get rich in a simulated environment, and feel the high and the fall of your stock exchange empire 
++ To experience the high or the rush of cocaine with just a simulation (without taking cocaine or similar, just by playing and imagine is real money you are betting, I invite you to get rich in a simulated environment, and feel the high and the fall of your stock exchange empire
+
++ Many times like 4 times I got with 0 money, in the street, no food for 1 day, the food I got I got it for free in a park because was left there looking like, not garbage, but like nobody wanted anymore, so I eat it and was the only thing I ate in the day. 2 times I burned a bit my house to release my angers, so I suggest that instead you put throw water in your house to release the anger or wrath of your heart and release the big evil in you, and if you want to know more, contact me enriquemartinez at mail.ru or I suggest, if I may, to pray naked (as naturally you are as a human) and ask god what to do to release your anger.
 
 Wall Street Trader 2001
 
