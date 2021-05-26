@@ -4,7 +4,7 @@
 
 + To experience the high or the rush of cocaine with just a simulation (without taking cocaine or similar, just by playing and imagine is real money you are betting, I invite you to get rich in a simulated environment, and feel the high and the fall of your stock exchange empire
 
-+ Many times, like 4, I ended with 0 money,sometimes in the street, no food, the food I got to eat for free in a park was fruit leftovers that nobody wanted anymore, so I eat it and was the only thing I ate in the day and drink water from the public park. 2 times I burned a bit my house to release my angers, so I suggest that instead you put throw water in your house to release the anger or wrath of your heart and release the big evil in you or to pray naked to god to know what to do and if you want to know more, contact me enriquemartinez at mail.ru or I suggest, if I may, to pray naked (we all humans of Earth arrived here naked) and ask god what to do to.
++ Many times, like 4, I ended with 0 money,sometimes in the street, sometimes with no food, once the food I got to eat for free in a park was fruit leftovers that nobody wanted anymore, so I eat it and was the only thing I ate in the day and drink water from the public park. 2 times I burned a bit my house to release my angers, so I suggest that instead you put throw water in your house to release the anger or wrath of your heart and release the big evil in you or to pray naked to god to know what to do and if you want to know more, contact me enriquemartinez at mail.ru or I suggest, if I may, to pray naked (we all humans of Earth arrived here naked) and ask god what to do to.
 
 Wall Street Trader 2001
 
